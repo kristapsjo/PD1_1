@@ -1,0 +1,1 @@
+pirmā rinda ibiio
