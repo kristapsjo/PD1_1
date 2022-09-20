@@ -6,3 +6,8 @@ piektā un sestā
 
 
 jauna relīze
+
+
+karsts labot izmaiņas
+
+
